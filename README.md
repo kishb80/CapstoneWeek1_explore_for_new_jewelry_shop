@@ -1,0 +1,1 @@
+# CapstoneWeek1_explore_for_new_jewelry_shop
